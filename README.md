@@ -1,1 +1,1 @@
-# der-ursprung-der-kuenstlichen-intellegenz
+# Der Ursprung der künstlichen Intellegenz
